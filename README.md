@@ -1,2 +1,10 @@
-# ART
-my drawings be Nice to me. 
+<div id="text" align="center">
+᭝     <img src="https://64.media.tumblr.com/e8850da613d995091da770e4edab61a8/85c1bcf957b6c5e0-e8/s400x600/a04f35ac217adf1ea7b4e692e3786149ca78cefe.pnj" alt="Pen" width="20" height="20">   ՟<br>
+  <img src="https://64.media.tumblr.com/fcc9cf7d76b88a15ee7289e7ea0fe29d/8ccd4c64bc184033-a0/s75x75_c1/43431dfe3ddbdf80ae53189bcf25d1d7fbd19e24.gifv" alt="Pen" width="50" height="50"><img src="https://64.media.tumblr.com/94df6f8d7b04c1707dd9011424700ecb/8ccd4c64bc184033-29/s75x75_c1/af960b5a52075bc02bce811a75188f5ad05ee851.gifv" alt="Pen" width="50" height="50"><img src="https://64.media.tumblr.com/c940246e144c4a773e63d5a6bc17d06f/8ccd4c64bc184033-df/s75x75_c1/eb3955bfb9323f6b186fdb54470b62a2b91db473.gifv" alt="Pen" width="50" height="50"><br>
+ <img src="https://64.media.tumblr.com/e97fade66c788f48664fe5ab64d7fe9d/579e5316ffbe1944-e6/s2048x3072/4b4feb9a5969f9bb37457a533717662f75db854e.gifv" alt="Pen" width="150" height="20"> <br>
+<details>
+  <summary><ins>MY ART</ins> Click to expand</summary>
+ <p align="center">     <b>dear ocs....<img src="https://i.postimg.cc/y6rNwR81/IMG-6897.gif" alt="Pen" width="25" height="30"></b> <br>     
+<img src="https://file.garden/Z4_uMXj5okOfzfmz/Untitled71_20260705080123.png" alt="Pen" width="100" height="110"> <img src="https://file.garden/Z4_uMXj5okOfzfmz/Untitled71_20260711030539.png" alt="Pen" width="100" height="110"> <img src="https://file.garden/Z4_uMXj5okOfzfmz/Untitled71_20260711030714.png" alt="Pen" width="100" height="110"> <img src="https://file.garden/Z4_uMXj5okOfzfmz/Untitled71_20260711030919.png" alt="Pen" width="100" height="110"> <img src="https://file.garden/Z4_uMXj5okOfzfmz/Untitled71_20260711030628.png" alt="Pen" width="100" height="110"> <img src="https://file.garden/Z4_uMXj5okOfzfmz/Untitled71_20260711030800.png" alt="Pen" width="100" height="110"> <img src="https://file.garden/Z4_uMXj5okOfzfmz/Untitled71_20260711030835.png" alt="Pen" width="100" height="110"><br> ++ didn't show a few! there's too many old ocs.</p>
+  </details>
+    
